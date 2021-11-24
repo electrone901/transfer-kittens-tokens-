@@ -1,4 +1,4 @@
-# Welcome To Blue DINO Meme Token Page
+# Welcome Kitten Token Page
 
 
 
